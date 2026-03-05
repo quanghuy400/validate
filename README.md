@@ -1,4 +1,6 @@
-Nguyễn Quang Huy - 23810310172
-![validate2](https://github.com/user-attachments/assets/1c7c3871-033b-4f89-a92e-2ccd8defaa61)
+Nguyễn Quang Huy - 23810310172 - Hoàn thiện sile buổi 6
 
-![validate1](https://github.com/user-attachments/assets/a27dbc2b-7f8a-4e65-90a0-1b3178cdf6ab)
+![hook2](https://github.com/user-attachments/assets/cfd3be92-109c-46b2-bd14-0212c8e53950)
+
+![hook1](https://github.com/user-attachments/assets/033f7841-d775-4913-9233-850bd38f71a6)
+
